@@ -4,7 +4,7 @@ I'm selling fully undetected and cheap sources (external/internal cheats, kernel
 
 DM me in discord to get more information - my username: l1nky1337
 # Download Build
-[Download](https://discord.gg/YzpCypQyNw)
+[Download](https://discord.gg/aJShJrT5Dp)
           
 # Discord
-Join my [discord server](https://discord.gg/YzpCypQyNw) to get vcxproj files and undetected driver for this source
+Join my [discord server](https://discord.gg/aJShJrT5Dp) to get vcxproj files and undetected driver for this source
